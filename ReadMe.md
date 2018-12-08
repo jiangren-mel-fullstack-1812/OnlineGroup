@@ -1,1 +1,1 @@
-where are the members?
+where are the members?  here's Peter, shall we start?
